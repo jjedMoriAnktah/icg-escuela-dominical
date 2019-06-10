@@ -23,7 +23,7 @@ Por favor den clic en los vínculos para descargar los archivos. Tienen la opción
 1. [La Omnipotencia de Dios](https://www.dropbox.com/s/mr28in1e6l1oy2g/Steven%20Lawson%2008%20-%20La%20Omnipotencia%20de%20Dios.mp4?dl=1)
 1. [La Inmutabilidad de Dios](https://www.dropbox.com/s/b4mkmod2i9nxb7i/Steven%20Lawson%2009%20-%20La%20Inmutabilidad%20de%20Dios.mp4?dl=1)
 1. [La Verdad de Dios](https://www.dropbox.com/s/q5nh9yr8fu0vzo6/Steven%20Lawson%2010%20-%20La%20Verdad%20de%20Dios.mp4?dl=1)
-1. [La Sabiduría de Dios](https://www.dropbox.com/s/xvg1w148j7ous0p/Steven%20Lawson%2011%20-%20La%20Sabidur%C3%ADa%20de%20Dios.mp4?dl=0)
+1. [La Sabiduría de Dios](https://www.dropbox.com/s/xvg1w148j7ous0p/Steven%20Lawson%2011%20-%20La%20Sabidur%C3%ADa%20de%20Dios.mp4?dl=1)
 1. [La Bondad de Dios](https://www.dropbox.com/s/ltrnzltox1kdop0/Steven%20Lawson%2012%20-%20La%20Bondad%20de%20Dios.mp4?dl=1)
 1. [La Gracia de Dios](https://www.dropbox.com/s/72hgqzix6jrziwk/Steven%20Lawson%2013%20-%20La%20Gracia%20de%20Dios.mp4?dl=1)
 1. [El Amor de Dios](https://www.dropbox.com/s/85cr7dogb17a5f3/Steven%20Lawson%2014%20-%20El%20Amor%20de%20Dios.mp4?dl=1)
