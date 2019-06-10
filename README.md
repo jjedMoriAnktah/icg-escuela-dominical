@@ -5,6 +5,8 @@ Hola hermanos,
 
 Por favor den clic en los vínculos para descargar los archivos. Tienen la opción de descargar el ZIP con todos los videos o únicamente algún(os) videos en particular.
 
+¡Bendiciones!
+
 ### ZIP con todos los videos
 
 * [Steven Lawson - Los Atributos de Dios](https://www.dropbox.com/s/cedab16xyxzul1w/Steven%20Lawson%20-%20Los%20Atributos%20de%20Dios.zip?dl=1)
