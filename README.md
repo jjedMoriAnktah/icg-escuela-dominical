@@ -3,7 +3,7 @@
 
 Hola hermanos,
 
-Por favor den clic en los vínculos para descargar los archivos. Tienen la opción de descargar el ZIP con todos los videos o únicamente algún(os) videos en particular.
+Por favor den clic en los vínculos para descargar los archivos. Tienen la opción de descargar el ZIP con todos los videos o únicamente algún(os) video(s) en particular.
 
 ¡Bendiciones!
 
