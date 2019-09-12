@@ -7,7 +7,9 @@ Por favor den clic en los vínculos para descargar los archivos. Tienen la opción
 
 NOTA: Los videos se encuentran comprimidos en archivos ZIP. Estos
 archivos deben ser descargados y descomprimidos en una computadora.
-Aunque se intente, no podrán ser descargados desde un iPad o un celular.
+Aunque se intente, no podrán ser descargados desde un iPad o un
+celular. Esto es así por las características de estos dispositivos y
+no por algo que yo haya hecho.
 
 ¡Bendiciones!
 
