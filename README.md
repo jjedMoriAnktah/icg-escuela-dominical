@@ -5,6 +5,10 @@ Hola hermanos,
 
 Por favor den clic en los vínculos para descargar los archivos. Tienen la opción de descargar el ZIP con todos los videos o únicamente algún(os) video(s) en particular.
 
+NOTA: Los videos se encuentran comprimidos en archivos ZIP. Estos
+archivos deben ser descargados y descomprimidos en una computadora.
+Aunque se intente, no podrán ser descargados desde un iPad o un celular.
+
 ¡Bendiciones!
 
 ### ZIP con todos los videos
